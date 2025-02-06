@@ -1,7 +1,7 @@
 
 # Sabbir Ahmed
 
-**703-395-3175** |   sabbir@codebuff.dev
+sabbir@codebuff.dev
 
 **GitHub:** [dec3ntraliz3d](https://github.com/dec3ntraliz3d) | **LinkedIn:** [sahmed100](https://www.linkedin.com/in/sahmed100)
 
